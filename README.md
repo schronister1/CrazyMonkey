@@ -12,3 +12,4 @@ or mabye I have had wayyy to much coffee....
 Ok coffee wore off now... so going to have a suggarrrry snack.... so not healthy...but keeps me going... weeee
 
 
+ok.. had dinner break... very crazy day... but more to come... working on resume now... going to be exciting and fun. 
